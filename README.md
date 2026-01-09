@@ -9,7 +9,7 @@
 
 <img width="1000" height="48" alt="image" src="https://github.com/user-attachments/assets/9000ff51-5b0a-4a4c-b04a-c7cceac3b8ac" />
 
-ㅤ⏜︵ㅤ. ✧     
+    
  
  ⋆˙⟡  hello ! my name is vincent, however i am more commonly known as vinny ( or vox )
  
@@ -19,7 +19,7 @@
 
 ── .✦  i ㅤ♡ my friends . hi issac. hi matt. hi light. hi ezekiel. hi vincent. hi sam. hi asher.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓂃₊ ⊹ . . .
+
 
 <img width="1000" height="48" alt="image" src="https://github.com/user-attachments/assets/9000ff51-5b0a-4a4c-b04a-c7cceac3b8ac" />
 
